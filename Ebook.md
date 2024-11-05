@@ -15,7 +15,7 @@ Utilizei o ChatGPT para pesquisa sobre reaçoes climáticas para o  e-book,o Cav
 ## 🚀 Resultados
 Este ebook aborda como o clima afeta o planeta, os ecossistemas e a sociedade humana. 
 
-ttps://www.canva.com/design/DAGVkmBJ124/KnQXxuQbGEB7ig_hX_gm1w/edit?utm_content=DAGVkmBJ124&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)()
+(https://www.canva.com/design/DAGVkmBJ124/oKcyewEtyTxpFWNbIwPvzw/view?utm_content=DAGVkmBJ124&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 ## 💭 Reflexão (Opcional)
 O desafio de criar algo 'natty' com IA generativa,foi de muito aprendizado, e a certeza que as IAs são ferramentas para o futuro de muitos projetos.
